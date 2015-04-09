@@ -71,5 +71,4 @@ Take 10 minutes to brainstorm next steps in gathering the information needed. En
 Take 7-10 mins for each group to share their next steps. 
 Take the last few minutes to appreciate the groups for all of their hard work. 
 
-::::End of Workshop::::
 
